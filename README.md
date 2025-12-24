@@ -34,6 +34,6 @@ Você pode visualizar o resultado final clicando no link abaixo:
 Se quiser conversar sobre oportunidades ou colaborações, sinta-se à vontade para me contatar:
 
 * **GitHub:** [@kathy2004](https://github.com/kathy2004)
-* **LinkedIn:** [Seu Nome Aqui](https://www.linkedin.com/in/seu-usuario/)
+* **LinkedIn:** [Kathelen Vitória](https://www.linkedin.com/in/kathelen-vit%C3%B3ria-b654aa312/)
 
 Feito com 💜 por Kathelen Vitória.
